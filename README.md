@@ -1,0 +1,1 @@
+# Bivariate-Analysis-of-Suicide-Rate-
